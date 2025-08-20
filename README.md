@@ -1,5 +1,6 @@
 Assalamualaikum warahmatullahi wabarakatuh
 
+
 Aku adalah anak bungsu sekaligus satu-satunya anak laki-laki dalam keluargaku.
 Dari lingkungan itu, aku tumbuh menjadi pribadi yang lembut namun tetap tegas, berhati baik, lebih suka mendengar ketimbang berbicara, jarang bergaul (butuh kepercayaan), pemalu namun percaya diri, penuh kasih, perhatian, dan selalu ingin menolong orang lain dengan tulus.
 Orangtuaku mendidikku dengan sangat baik. Mereka mengajarkan nilai-nilai luhur seperti pentingnya memberi daripada menerima, serta menanamkan kebiasaan untuk tidak membicarkan orang lain apalagi membenci. Nilai-nilai inilah yang menjadi fondasi dalam cara pandang dan sikapku terhadap hidup.
@@ -35,7 +36,7 @@ Ing madya mangun karsa - Ditengah membangun semangat
 
 Tut wuri handayani - Dari belakang memberi dorongan
 
-
 Terima kasih.
+
 
 Wassalamualaikum warahmatullahi wabarakatuh.
