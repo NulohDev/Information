@@ -8,7 +8,7 @@ Teman-temanku sejak SD, SMP, hingga SMA pun tahu bahwa aku selalu berusaha memba
 Hobiku adalah memprogram (Development), mendesain, sepak bola dan berpergian (jika ada waktu). Dari ketekunan, dedikasi, keteraturan, keteguhan, dan kreativitas. Cita-citaku ingin menjadi seorang Developer, seseorang yang bisa memberikan kontribusi nyata lewat teknologi, seperti Abu Abdullah Muhammad Ibn Musa al-Khwarizmi orang yang pertama kali memperkenalkan konsep pengembangan (Algoritma), Larry Page pendiri Google, Elon Musk & Sam Altman pengembang ChatGpt (AI), dan Mark Zuckberg pendiri Facebook (Meta).
 
 Sebagai pribadi/mahasiswa, aku memilih untuk fokus pada diri sendiri. Aku tidak ikut campur urusan yang bukan bidangku.
-Aku juga tidak pernah ikut campur tentang politik, apalagi demo mahasiswa. Aku bukan Anak Abah, bukan Anak Bpk. Ganjar, bukan Anak Bpk. Prabowo, bukan Anak Bpk. Jokowi, dan bukan juga Anak Bpk. SBY. Saya selalu netral, berharap selalu mendoakan mereka yang terbaik.
+Aku juga tidak pernah ikut campur tentang politik, apalagi demo mahasiswa, dan yang baru-baru ini One Piece. Aku bukan Anak Abah, bukan Anak Bpk. Ganjar, bukan Anak Bpk. Prabowo, bukan Anak Bpk. Jokowi, dan bukan juga Anak Bpk. SBY. Saya selalu netral, berharap selalu mendoakan mereka yang terbaik.
 Aku juga tidak pernah ikut campur tentang pemerintah, mau buat program apapun itu tidak ada masalah bagiku, mungkin itu yang terbaik buat masyarakat.
 
 Sekali lagi, aku tidak pernah ikut campur tentang politik dan pemerintah. Aku belajar sendiri, bekerja sendiri, mencari pengalaman sendiri, tanpa berharap bantuan orang lain.
