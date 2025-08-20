@@ -24,7 +24,7 @@ Terkadang hal yang menurut itu serius selalu dijadiin candaan/guyonan.
 Aku memang seorang idealis, mungkin ada orang yang berharap suatu saat aku menjadi presiden. Suatu saat, jika benar terjadi, aku ingin menjalankan amanah itu dengan tulus, tanpa digaji, karena bagiku seorang pemimpin hanyalah titipan dan pelayan masyarakat. Suatu saat, saya jadi presiden jika menurut itu waktu yang tepat atau dipaksakan.
 Namun, sekali lagi, menjadi presiden bukanlah cita-citaku. Aku hanya ingin menjadi seorang Developer, dan itulah jalan yang benar-benar aku pilih.
 
-Negara kita masih berkembang, dan akun Republik Indonesia sudah dibuat, yuk bareng-bareng/gotong-royong/saling merangkul/saling mengerti/perasaan senasib. 
+Indonesia masih negara berkembang, dan akun Republik Indonesia sudah dibuat, yuk bareng-bareng/gotong-royong/saling merangkul/saling mengerti/perasaan senasib. 
 Dan aku selalu mendoakan yang terbaik buat masyarakat, pemerintah, dan Republik Indonesia agar terwujudnya Indonesia Emas 2045. InsyaAllah...
 
 Ing ngarsa sung tuladha - Didepan memberi contoh
