@@ -32,6 +32,7 @@ Ing madya mangun karsa - Ditengah membangun semangat
 
 Tut wuri handayani - Dari belakang memberi dorongan
 
+Untuk menjadi peran kunci, tidak lupa belajar dari Amerika Serikat dengan inovasinya, China dengan produsen perangkat elektronik, dan Jepang dengan animasinya.
 
 Terima kasih.
 
