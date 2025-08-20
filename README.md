@@ -19,7 +19,7 @@ Aku buat akun ini, aku dedikasikan buat orang di masa depan dan bukan untuk apa.
 Aku juga pernah buat playlist buat ngode seseorang dan bukan untuk apa.
 
 Terkadang hal apa yang kita sampaikan dengan tulus selalu disalahartikan/disalahgunakan.
-Terkadang hal yang menurut itu serius selalu dijadiin candaan/guyonan.
+Terkadang hal yang menurut itu serius selalu dijadikan candaan/guyonan.
 
 Aku memang seorang idealis, mungkin ada orang yang berharap suatu saat aku menjadi presiden. Suatu saat, jika benar terjadi, aku ingin menjalankan amanah itu dengan tulus, tanpa digaji, karena bagiku seorang pemimpin hanyalah titipan dan pelayan masyarakat. Suatu saat, saya jadi presiden jika menurut itu waktu yang tepat atau dipaksakan.
 Namun, sekali lagi, menjadi presiden bukanlah cita-citaku. Aku hanya ingin menjadi seorang Developer, dan itulah jalan yang benar-benar aku pilih.
