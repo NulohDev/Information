@@ -4,6 +4,7 @@ Aku adalah anak bungsu sekaligus satu-satunya anak laki-laki dalam keluargaku.
 Dari lingkungan itu, aku tumbuh menjadi pribadi yang lembut namun tetap tegas, berhati baik, lebih suka mendengar ketimbang berbicara, jarang bergaul (butuh kepercayaan), pemalu namun percaya diri, penuh kasih, perhatian, dan selalu ingin menolong orang lain dengan tulus.
 Orangtuaku mendidikku dengan sangat baik. Mereka mengajarkan nilai-nilai luhur seperti pentingnya memberi daripada menerima, serta menanamkan kebiasaan untuk tidak membicarkan orang lain apalagi membenci. Nilai-nilai inilah yang menjadi fondasi dalam cara pandang dan sikapku terhadap hidup.
 Teman-temanku sejak SD, SMP, hingga SMA pun tahu bahwa aku selalu berusaha membantu mereka, bahkan pernah sering berbagi contekan tugas atau PR (meski itu salah, tapi niatku murni ingin menolong).
+
 Hobiku adalah memprogram (Development), mendesain, sepak bola dan berpergian (jika ada waktu)
 Dari ketekunan, dedikasi, keteraturan, keteguhan, dan kreativitas. Cita-citaku ingin menjadi seorang Developer, seseorang yang bisa memberikan kontribusi nyata lewat teknologi, seperti Abu Abdullah Muhammad Ibn Musa al-Khwarizmi orang yang pertama kali memperkenalkan konsep pengembangan (Algoritma), Larry Page pendiri Google, Elon Musk & Sam Altman pengembang ChatGpt (AI), dan Mark Zuckberg pendiri Facebook (Meta).
 
