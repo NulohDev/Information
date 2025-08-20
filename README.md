@@ -12,7 +12,7 @@ Aku juga tidak pernah ikut campur tentang politik, apalagi demo mahasiswa, dan y
 Aku juga tidak pernah ikut campur tentang pemerintah, mau buat program apapun itu tidak ada masalah bagiku, mungkin itu yang terbaik buat masyarakat.
 
 Sekali lagi, aku tidak pernah ikut campur tentang politik dan pemerintah. Aku belajar sendiri, bekerja sendiri, mencari pengalaman sendiri, tanpa berharap bantuan orang lain.
-Seharusnya anak muda yang ingin berkembang bukan untuk jadi ancaman, dan malah ditakutin-takutin dengan hal yang bukan hubungannya.
+Seharusnya anak muda yang ingin berkembang bukan untuk jadi ancaman, dan malah ditakut-takutin dengan hal yang bukan hubungannya.
 
 Aku buat akun ini, aku dedikasikan buat orang di masa depan dan bukan untuk apa.
 Aku juga pernah buat playlist buat ngode seseorang dan bukan untuk apa.
